@@ -8,3 +8,4 @@
 
 無論是通勤、運動還是休閒出行，我們的應用都能滿足需求。立即下載，開始體驗更智慧的 YouBike 騎行之旅吧！
 
+贊助我一杯咖啡！ https://buymeacoffee.com/billchan
